@@ -1,3 +1,3 @@
 # workshop
 
-<img src="https://cdn-images-1.medium.com/max/719/1*ODQUZPiwWu04XxKX4f2jbg.jpeg" />
+<img src="https://media.giphy.com/media/13XW2MJE0XCoM0/giphy.gif" />
